@@ -16,6 +16,7 @@
 <br>
 
 ## Total Sanctuary Domination
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/2161502e-d538-4056-8bdd-35e96733afa1" />
 
 **Diablo IV Ultimate Cheat Bot & Mod Menu 2026** gives you complete god-like power over Sanctuary.  
 Unlimited gold/mats/legendaries/spirits, infinite health/resource/essence, god mode for character & party, instant level 100 / paragon boards/masteries, one-shot any boss/monster, teleport, speed hack, no cooldowns, auto-farm nightmare dungeons/pit/helltides/legion events, full map reveal, infinite inventory/stash, unlock all uniques/mythic uniques/aspects — farm billions of gold, max every class, and dominate every season ladder without any effort.
